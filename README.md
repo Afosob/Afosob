@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Afosob
+- 👀 I’m interested in programming
+- 🌱 I’m currently learning C++, Java, python
+- 📫 How to reach me - telegram -@Afosobk VK - vk.com/afosobk
